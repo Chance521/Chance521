@@ -2,7 +2,7 @@
 - 👀 I’m interested in sleep
 - 🌱 I’m currently learning to live
 - 💞️ I’m looking to collaborate on you
-- 📫 How to reach me email = []
+- 📫 How to reach me? no dont email me
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
