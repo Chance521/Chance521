@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @Chance521
-- 👀 I’m interested in sleep
-- 🌱 I’m currently learning to live
 - 💞️ I’m looking to collaborate on you
-- 📫 How to reach me? no dont email me
+- 📫 How to reach me? chance94023@outlook.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
